@@ -4,4 +4,4 @@
 Bernardo R (2010) Breeding for Quantitative Traits in Plants, 2nd edn. Stemma Press, Woodbury, Minn  
 Purchase Book here: http://stemmapress.com/   
 
-Last Updated: 2018.06.19   
+Last Updated: 2018.07.05 
